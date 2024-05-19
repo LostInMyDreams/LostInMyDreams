@@ -4,4 +4,6 @@ Minor age. An INFP 4w1 who loves ENFJ lol. I have social anxiety.. please iwec :
 
 My Fandoms: Bungō Stray Dogs, Moriarty The Patriot, Reverse:1999, Death Note, Mobile Legend and many more.
 
-(Note: I'm sorry if I don't follback u in this website bc i just following back my friends / the people I know / my idols (people whose skin I like)
+Pls don't ever call me a Weaboo. I don't like these nickname..
+
+Feel free to INT, and C+H i'd appreciate that <3.
