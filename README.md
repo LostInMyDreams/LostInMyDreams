@@ -1,4 +1,4 @@
-I don't talk much.
+Semiverbal.
 
 Minor age. An INFP 4w1 who loves ENFJ lol. I love men ngl. I have social anxiety.. please iwec :((. I'm moody person, I'm sorry if you're annoyed. I also sorry if i late respon myb I'm afk, or smh. You can always be friend with me but I'm picky about my friends sometimes.
 
