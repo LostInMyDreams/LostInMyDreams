@@ -4,3 +4,5 @@ Semiverbal, i always alone so any int are appreciated 𐔌՞ ܸ.ˬ.ܸ՞𐦯!
 
 .![giphy](https://github.com/user-attachments/assets/9b55692a-6a1e-4988-99be-a68a552b0e3b)
 
+
+strawpage still a wip but you can take a look ^_^
